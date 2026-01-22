@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @makrand999
-- 👀 I’m interested in any ting mostly that has cool stuf 
+- 👀 I’m interested in anything ,mostly cool stuf 
 - 🌱 I’m currently learning data stracture and algorithum 
 - 💞️ I’m looking to collaborate on any colledge level progect
 - 📫 How to reach me: my phone number 7028448790
